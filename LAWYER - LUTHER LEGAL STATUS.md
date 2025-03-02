@@ -1,4 +1,0 @@
-**Validation of Luther’s Legal Status:**
-
--   During an April 2024 on-site walkthrough, Luther verbally affirmed his status as a lawyer practicing in corporate law. Although initially vague, he confirmed his legal background to tenant Stephen Boerner, and this was corroborated by Mr. Steinberger in a separate conversation.
--   It is now verified that Luther is indeed a licensed attorney with the Missouri Bar and currently practices corporate law in North Carolina as an assistant general counsel for an undisclosed corporation. Unless he represented himself as offering Florida-based legal services without authorization, there may be no violation of unauthorized practice of law (UPL) concerning Florida. His admission, however, does not mitigate the legal ramifications of conducting unregistered business operations in Florida through Amarlu Enterprises.
